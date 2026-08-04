@@ -7,7 +7,7 @@
 
 - 📫 How to reach me: **akshatsha9630@gmail.com**
 
-- Please visit my **[resume](https://drive.google.com/file/d/1UGB4vqFinbs3Mv0-IgPr5MpdQQFIQtIv/view?usp=sharing)** for more details
+- Please visit my **[resume](https://drive.google.com/file/d/1mjfbberoNLr47feBinLjeCTCAf9vSJT6/view?usp=sharing)** for more details
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
