@@ -9,6 +9,8 @@
 
 - Please visit my **[resume](https://drive.google.com/file/d/1mjfbberoNLr47feBinLjeCTCAf9vSJT6/view?usp=sharing)** for more details
 
+- Have a look at my portfolio **[https://akshatsharma0208.github.io/Akshat-Sharma/](https://akshatsharma0208.github.io/Akshat-Sharma/)**
+
 <h3 align="left">Connect with me:</h3>
 <p align="left">
 <a href="https://twitter.com/akshat24532801" target="blank"><img align="center" src="https://raw.githubusercontent.com/rahuldkjain/github-profile-readme-generator/master/src/images/icons/Social/twitter.svg" alt="akshat24532801" height="30" width="40" /></a>
